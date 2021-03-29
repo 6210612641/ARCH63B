@@ -23,3 +23,6 @@ Thunyaporn Tangcharoenchitkul
 
 7. clip7 : PC rise-v
 <https://youtu.be/5NvH8sWkELc>
+
+8.clip8 : Ripes
+<https://youtu.be/QAaxKf5PzVI>
